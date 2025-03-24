@@ -1,4 +1,4 @@
-## Hi Ransford! Nice to meet you. Let me know how I can help! 🚀😊
+## Hi I'm Ransford! 🚀😊
 
 🎓 Artificial Intelligence Master's at University of Michigan-Dearborn <br />
 💼 Former Lead Software Developer at El-Parah Consult Ltd 🔧 <br />
